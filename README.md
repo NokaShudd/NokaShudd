@@ -1,3 +1,1 @@
-I’m @NokaShudd. Hi.
-
-
+Hey.
